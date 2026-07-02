@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-VACC100320HZSRBRA5
+VACC100320HZSRBRA5
